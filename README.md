@@ -1,0 +1,1 @@
+По данной работе была опубликова научная статья - https://moitvivt.ru/ru/journal/article?id=2032
